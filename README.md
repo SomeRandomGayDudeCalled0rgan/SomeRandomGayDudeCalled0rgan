@@ -3,7 +3,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 
-󠁯•󠁏󠁏Here is where i'll put down more important things.. strawpages is to get to know me!
+󠁯•󠁏󠁏Here is where i'll put down more random int things.. strawpages is to get to know me!
 
 
 󠁯•󠁏󠁏I don't and will never mind if you c+h w me, even if i'm busy talking to someone- or if i'm with friends.
@@ -16,5 +16,14 @@
 •󠁏󠁏I like interacting, and would be glad to be your friend after a small talk or anything ^_^
 
 
-•󠁏󠁏 Mostly could be busy making cosplays or listening to my spotify playlist, check that out btw! (wip)
+•󠁏󠁏 Mostly could be busy making cosplays or listening to my spotify playlist, check that out btw! 
+
+•󠁏󠁏 Please reccomened me music artists for this stupid playlist im begging
+
+•󠁏󠁏biggest rarepairer ever, ^,^ lowkey my suit sprout look like denji vruh :sob;
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌(WIP)
+
+
+<img src="https://i.pinimg.com/736x/f1/fc/c7/f1fcc7dde8372f950988c1432b3f740a.jpg" alt="Story pin image"/>
 
