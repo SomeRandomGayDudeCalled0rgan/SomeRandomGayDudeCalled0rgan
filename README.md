@@ -3,7 +3,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 
-󠁯•󠁏󠁏Here is where i'll put down more random int things.. strawpages is to get to know me!
+󠁯•󠁏󠁏Here is where i'll put down somewhat important things, remaking strawpage to get 2 know me.
 
 
 󠁯•󠁏󠁏I don't and will never mind if you c+h w me, even if i'm busy talking to someone- or if i'm with friends.
@@ -20,12 +20,14 @@
 
 •󠁏󠁏 Please reccomened me music artists for this stupid playlist im begging
 
-•󠁏󠁏biggest rarepairer ever, ^,^ lowkey my suit sprout look like denji vruh :sob;
+•󠁏󠁏 Hey.. I really like clowns n jesters, sorry that's just random mb
 
-•󠁏󠁏placeholder
+•󠁏󠁏 I'm somewhat open to making new friends !!
+
+
+•󠁏󠁏 Warning that I do tend to take personal jokes or anything seriously mostly,(watch your freak,)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌(WIP)
 
-
-<img src="https://i.pinimg.com/736x/f1/fc/c7/f1fcc7dde8372f950988c1432b3f740a.jpg" alt="Story pin image"/>
+<img src="blob:chrome-untrusted://media-app/02063400-0dae-43a4-92ca-4019ab55fcb0" alt=""/><img width="1078" height="1080" alt="image" src="https://github.com/user-attachments/assets/87fb3a9b-9d40-4895-962b-1f60302baddf" />
 
