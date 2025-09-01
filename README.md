@@ -28,7 +28,24 @@
 
 ˚.  ' ;I express myself through emojis/facial expressions . 
 
-══════════════════════════════════════════════════════╰┈➤ wip wip .. 
+══════════════════════════════════════════════════════╰┈➤ updated ver , dni critita  Sep 1st, 2025
 
- 
+
+˚.  ' Oooo yes I love writing, sh- I mean shoot I said that prob.. hey ok,listen . I'm a senstive person. again, don't ragebait me please. MY anger issues will rise through it's limits, please. I will crumble apart. it's not funny.  
+
+
+ ˚.  ' Dni pros/darkshippers + zoos , you guys scare me.. just shooo . respectfully. 
+
+ ˚.  ' people who make jokes on real incidents , ex;9/11 jokes, back off dude.. 
+
+ ˚.  ' essesive weird behavior / being a freak(y) . It pisses me off ngl .
+
+ ˚.  ' Hmm yeah dni Homophobics , Sexist people + racist . thanks,now shoo. shooo, cmon shoo . 
+
+ ˚.  ' Dni if you're also one of those who fake disorders too, or mock it . fuck off. 
+
+ ˚.  ' do not interact if you like to just preasure ships onto people, yeah you know who you are.  mhmmm MHMM...
+
+ ══════════════════════════════════════════════════════╰┈➤  hehe maybe later . 
+
 
