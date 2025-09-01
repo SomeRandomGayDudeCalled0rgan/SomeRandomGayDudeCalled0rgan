@@ -1,4 +1,5 @@
-<img src="blob:chrome-untrusted://media-app/f7e82504-851d-439b-8145-71db47d3d9cb" alt=""/><img width="1200" height="1200" alt="" src="https://github.com/user-attachments/assets/cfed962a-c5e4-4305-89f1-2e53c1b82500" />
+<img src="blob:chrome-untrusted://media-app/3f8a60d5-7879-4734-8a76-c311c53d52ca" alt=""/><img width="218" height="302" alt="image" src="https://github.com/user-attachments/assets/514b863e-6873-45f3-8068-b7ea8bb77c50"/>
+
 
 ══════════════════════════════════════════════════════╰┈➤ Information pstt info.
 
@@ -29,6 +30,9 @@
 ˚.  ' ;I express myself through emojis/facial expressions . 
 
 ══════════════════════════════════════════════════════╰┈➤ updated ver , dni critita  Sep 1st, 2025
+
+<img src="blob:chrome-untrusted://media-app/31d6a8b6-386c-4869-ba50-55d41c097f24" alt=""/><img width="218" height="231" alt="image" src="https://github.com/user-attachments/assets/b8ae7644-3459-4c27-9572-4faa3ffa18b5" />
+
 
 
 ˚.  ' Oooo yes I love writing, sh- I mean shoot I said that prob.. hey ok,listen . I'm a senstive person. again, don't ragebait me please. MY anger issues will rise through it's limits, please. I will crumble apart. it's not funny.  
