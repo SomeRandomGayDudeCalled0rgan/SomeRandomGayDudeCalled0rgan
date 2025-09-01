@@ -50,6 +50,22 @@
 
  ˚.  ' do not interact if you like to just preasure ships onto people, yeah you know who you are.  mhmmm MHMM...
 
- ══════════════════════════════════════════════════════╰┈➤  hehe maybe later . 
+ ══════════════════════════════════════════════════════╰┈➤ You can basically int if you're not on my dni , ok onto .. idk.
+
+<img src="blob:chrome-untrusted://media-app/ba5935c9-ae3a-4b36-b758-17858548a427" alt=""/><img width="1080" height="1370" alt="image" src="https://github.com/user-attachments/assets/8e631a78-6abb-41bd-8aec-03d76e81ea98" />
 
 
+
+˚.  ' ; Nicknames since pronouns isn't gon update ;Zizo / Zibby , 0r0reo . 0rgan , Liv / Lilo . 
+
+˚.  ' ; Hey let me yap to you some more.. yes i'm december xmas born baby, merry christmas guys !111!
+
+˚.  ' ; I don't know what else hm.. ok Ponytown info yeah.. more of that? sureee..
+
+˚.  '; I tend to change my styles a lot, thats because I'm overly obsessed with trying to get better at my shading, if it doesn't change.. I won't stop until I drive myself to exhustation, why? Because i'm weird and think my better is never gonna be good enough.
+
+˚.  ' ; I also tend to be alone mostly, orrr with my partner, "Oh where's your friends?" Listen, I fear half my friends naturally, I have aniexty so bad but my attactment issues are loose, I just try not to be distant, so yeah sorry if were friends and I come off like that.. god i'm writing a lot and I love it ^_^
+
+˚.  ' ;  I'm mostly seen in my sprout or dandy n yatta cosplay, guys I do not love sprout more than yatta, ignore my github.. runs away . 
+
+══════════════════════════════════════════════════════╰┈➤ wip wip 
