@@ -4,3 +4,13 @@
 
 
 ·········⋆༺𓆩❀𓆪༻⋆··················⋆༺𓆩❀𓆪༻⋆····// Signing on..  \\\ ···L O A D  I N G .···········⋆༺𓆩❀𓆪༻⋆···············
+
+✮ ' Hello And Welcome To My Github . .  .
+
+✮ ' Feel free to always C+H with me, even if on dni . Just in a bad mood yk? 
+
+✮ ' If i'm on away status, please note that i'm offtb / entirely away, so w2i.
+
+✮ ' Feel free to be friends, Idm friend requests all that much.. just ask me.
+
+✮ '  wip wip .. 
