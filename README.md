@@ -11,6 +11,26 @@
 
 ✮ ' If i'm on away status, please note that i'm offtb / entirely away, so w2i.
 
-✮ ' Feel free to be friends, Idm friend requests all that much.. just ask me.
+✮ ' Feel free to bmf !! /oomfs.
 
-✮ '  wip wip .. 
+✮ ' #no.1 Yaoi + Yuri (straight ship) Enjoyer .
+
+✮ ' Biggest poetry and reading freak , I write quotes n Stories.
+
+✮ ' I'm a great listener if you ever need someone to talk to . . . 
+
+·········⋆༺𓆩❀𓆪༻⋆··················⋆༺𓆩❀𓆪༻⋆····// ABOUT ME \\\ ···L O A D  I N G .···········⋆༺𓆩❀𓆪༻⋆···············
+
+✮ '  Hyperfixtation on Writing stories // Poetry n Quoting .
+
+✮ ' I love neon brightish colors, or warm pallets / tint / shading . 
+
+✮ ' I'm #147th HeavyMetal music enjoyer . 
+
+✮ ' Pokemon fan  , Fandoms ;; P0KEMON , OSC , Forsaken , fnaf , Dandy world (not fandom, just game ) , Fnf , DDLC , KNY , Romantic Killer , Bluelock , Blue Period , etc . 
+
+Music artist  >> ;; ROAR , Flowerovlove , Jack Stauber's Micropop , JAWNY , Peter McPoland , Sombr , The Cardigans ,Mindless Self Indulgence , Rebzyyx , Lady Gaga , MARINA , SyKo , Tv Girl , Mitski , Sodikken , Laufey , Mother Mother , AJR , Stephanie Mabey , Cake Bake Betty, etc .
+
+✮ ' Interst / more hyperfixation ;; Poetry , Sketching // Shading ,  Writing  , Rant Videos // expose videos  ,  >>improving my mental health<< , etc ->   WIP ..
+
+<img src="https://files.catbox.moe/7q1783.png" alt="47"/>
